@@ -8,6 +8,9 @@ Ashish Patel is an AI Researcher, Data Scientist, and Machine Learning Engineer 
 
 (https://www.linkedin.com/posts/ashishpatel2604_data-mlops-artificialintelligence-activity-6991976488665288704-c9rZ/)
 
+Ashish Patel's LinkedIn https://www.linkedin.com/in/ashishpatel2604/
+Github Profile: https://github.com/ashishpatel26
+
 ===============================================================================
 
 ## Table of Contents
